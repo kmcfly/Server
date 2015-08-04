@@ -1,0 +1,1 @@
+all rights resolved .
